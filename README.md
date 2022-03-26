@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kacper531
-- 👀 I’m interested in 3d modeling
+- 👀 I’m interested in game design and shit
 - 🌱 I’m currently considering learning to code in java
-- 💞️ I’m looking to collaborate on Minecraft mods
+- 💞️ I love shitting
 - 📫 How to reach me:
 
 - Discord: Kacper531#9907
